@@ -1,0 +1,1 @@
+Professional portfolio site. Public site contents include staged gameplay captures, engineering case studies, and role-specific resumes. The trailer on this public version is silent pending confirmation of music rights.
